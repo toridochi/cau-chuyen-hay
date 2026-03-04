@@ -5,6 +5,8 @@ categories: [Inspirational Story]
 tags: [life lessons, success mindset, motivational stories]
 description: "An inspiring story about how a scientist invented safety glass from a small laboratory accident and the lesson about recognizing opportunities in everyday moments."
 slug: "glass-bottle-opportunity-story"
+image: /assets/img/posts/glass-bottle-opportunity-story.jpg
+
 
 primary_keyword: "inspirational story about opportunity"
 
