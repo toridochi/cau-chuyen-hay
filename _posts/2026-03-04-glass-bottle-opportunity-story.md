@@ -100,7 +100,7 @@ This discovery suggested that even seemingly random events in everyday life may 
 
 ---
 
-## The Lesson Hidden in Small Moments
+## Moral of the story
 
 Most of us have probably dropped a glass bottle or broken something made of glass at some point in life.
 
