@@ -47,6 +47,10 @@ social:
 plugins:
 - jekyll-sitemap
 
+assets:
+  css:
+    - /assets/css/custom.css
+
 # Site Verification Settings
 webmaster_verifications:
   google: JqHwzcecMq946gFjDB3w9kv85bTiIQG6DyBLKOLXiIA # fill in your Google verification code
