@@ -95,3 +95,9 @@ People who maintain hope throughout their lives possess the strongest faith and 
 Hope is one of the greatest sources of human strength.
 
 Even in difficult times, those who keep hope alive in their hearts can overcome obstacles, discover new paths, and create a meaningful life.
+
+---
+
+## Related Moral Stories
+
+- [The Bottle Beside the Water Pump](/water-pump-bottle-inspirational-story/)

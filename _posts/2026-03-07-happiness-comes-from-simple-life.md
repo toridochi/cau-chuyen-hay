@@ -103,3 +103,4 @@ When we learn to be content and grateful, happiness will always be within reach.
 ## Related Moral Stories
 
 - [Living with Great Hope: An Inspirational Story from Alexander the Great](/living-with-great-hope-inspirational-story/)
+- [The Bottle Beside the Water Pump](/water-pump-bottle-inspirational-story/)
