@@ -97,3 +97,9 @@ True happiness does not come from endless wealth or ambition.
 It comes from appreciating what we already have and living a balanced, simple life.
 
 When we learn to be content and grateful, happiness will always be within reach.
+
+---
+
+## Related Moral Stories
+
+- [Living with Great Hope: An Inspirational Story from Alexander the Great](/living-with-great-hope-inspirational-story/)
