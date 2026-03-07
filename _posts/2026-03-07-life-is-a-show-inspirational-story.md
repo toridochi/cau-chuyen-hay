@@ -116,6 +116,18 @@ Remember: we came here to watch a wonderful show, not to fall asleep in the best
 
 ---
 
+## Why This Story Still Matters Today
+
+Many people today feel exhausted from chasing success, working endlessly, and trying to meet society's expectations.
+
+This story reminds us that life is not only about reaching the highest position, but also about enjoying the journey.
+
+Balance between ambition and well being is essential for a fulfilling life.
+
+It encourages us to work hard, but also remember to experience and appreciate the beauty of life itself.
+
+---
+
 ## Related Moral Stories
 
 - [Happiness Comes from Simplicity](/happiness-comes-from-simple-life/)

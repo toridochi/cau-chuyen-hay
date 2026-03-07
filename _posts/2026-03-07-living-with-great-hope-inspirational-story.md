@@ -98,6 +98,18 @@ Even in difficult times, those who keep hope alive in their hearts can overcome 
 
 ---
 
+## Why This Story Still Matters Today
+
+In an age filled with uncertainty, economic pressure, and rapid social change, hope remains one of the most powerful forces in human life.
+
+This story reminds us that true leadership and resilience are not built on wealth or status, but on the ability to maintain hope even during difficult times.
+
+People who carry hope within them are more likely to inspire others, overcome setbacks, and continue moving forward.
+
+Today, just as in Alexander's time, hope remains one of the greatest strengths a person can possess.
+
+---
+
 ## Related Moral Stories
 
 - [The Bottle Beside the Water Pump](/water-pump-bottle-inspirational-story/)

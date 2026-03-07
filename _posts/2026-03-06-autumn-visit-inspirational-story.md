@@ -116,3 +116,15 @@ Lulu felt that his autumn visit had truly opened his eyes.
 Curiosity helps us learn about the world, but wisdom comes from understanding that different people and situations require different solutions.
 
 By observing others, asking questions, and keeping an open mind, we can discover new perspectives and gain valuable knowledge about life.
+
+---
+
+## Why This Story Still Matters Today
+
+In modern society, people often become disconnected from nature and the simple wisdom found in everyday life.
+
+This story reminds us that curiosity and observation are powerful ways to learn about the world.
+
+Different individuals and situations require different solutions, just like the animals preparing for winter in their own ways.
+
+The lesson encourages open mindedness, learning from others, and understanding that there are many paths to success.
