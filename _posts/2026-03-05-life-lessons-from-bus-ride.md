@@ -260,3 +260,4 @@ Even the smallest encounters may teach us something about life.
 ## Related Moral Stories
 
 - [We Came to This World to Watch a Wonderful Show](/life-is-a-show-inspirational-story/)
+- [Happiness Comes from Simplicity](/happiness-comes-from-simple-life/)
