@@ -113,3 +113,4 @@ Today, just as in Alexander's time, hope remains one of the greatest strengths a
 ## Related Moral Stories
 
 - [The Bottle Beside the Water Pump](/water-pump-bottle-inspirational-story/)
+- [A Beggar with One Arm](/value-of-life-inspirational-story/)
