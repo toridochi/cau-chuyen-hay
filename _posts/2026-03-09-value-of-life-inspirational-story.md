@@ -1,6 +1,6 @@
 ---
 title: "The Value of Life: An Inspirational Story About Dignity and Self-Respect"
-date: 2026-03-09 00:30
+date: 2026-03-09 
 categories: [Inspirational Story]
 tags: [life lessons, personal growth, motivational stories]
 description: "A powerful inspirational story about a beggar who regained his dignity and changed his life through hard work and self respect."
