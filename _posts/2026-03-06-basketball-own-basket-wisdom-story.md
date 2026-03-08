@@ -99,3 +99,4 @@ It reminds us that true wisdom lies not only in experience, but also in adaptabi
 ## Related Moral Stories
 
 - [The More Professional You Are, The Better You Must Communicate](/professionalism-and-communication-story/)
+- [The Clever Bookseller](/clever-bookseller-marketing-story/)
